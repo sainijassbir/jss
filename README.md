@@ -1,3 +1,4 @@
+![Display picture](sainijasbir.jpg)
 # Jasbir Singh Saini	
 
 1. Working as Asscociate Professor at GNDEC
