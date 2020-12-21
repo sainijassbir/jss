@@ -6,7 +6,7 @@
 Industrial Area, Phase 9
 Mohali
 Punjab, India
-  
+
 
 **IDream Networks Pvt. Ltd.**
 SCO 15, Second Floor,
@@ -26,7 +26,7 @@ Ferozepur Road
 Ludhiana
 
 
-I-tek Logics Pvt. Ltd.
-1002, Phase-3, Urban Estate, 
+**I-tek Logics Pvt. Ltd.**
+1002, Phase-3, Urban Estate,
 Near Flower Chowk,  Dugri
 Ludhiana -141013
